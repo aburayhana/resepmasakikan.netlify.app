@@ -1,0 +1,93 @@
+---
+description: "Bagaimana Membuat Bandeng Bakar Bumbu Kecap Pedas, Sempurna"
+title: "Bagaimana Membuat Bandeng Bakar Bumbu Kecap Pedas, Sempurna"
+slug: 2159-bagaimana-membuat-bandeng-bakar-bumbu-kecap-pedas-sempurna
+date: 2020-07-19T01:06:48.841Z
+image: https://img-global.cpcdn.com/recipes/a33b212aa11cd53b/751x532cq70/bandeng-bakar-bumbu-kecap-pedas-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/a33b212aa11cd53b/751x532cq70/bandeng-bakar-bumbu-kecap-pedas-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/a33b212aa11cd53b/751x532cq70/bandeng-bakar-bumbu-kecap-pedas-foto-resep-utama.jpg
+author: Edna Bush
+ratingvalue: 3
+reviewcount: 12
+recipeingredient:
+- "1 ekor bandeng segar cuci belah melebar badan bandeng"
+- "4 sdm kecap manis"
+- "50 ml air"
+- " Bahan Marinasi"
+- "1/2 butir jeruk nipis peras"
+- "Secukupnya garam halus"
+- " Bahan Bumbu Halus"
+- "2 siung bawang putih"
+- "1 ruas jahe"
+- "1 ruas kunyit"
+- "1 butir kemiri"
+- "1/2 sdt ketumbar halus"
+- "1/2 sdt garam"
+- "1/4 sdt gula pasir"
+- "3 buah cabe rawit bisa ditambahdikurang"
+recipeinstructions:
+- "Panaskan sedikit minyak dengan api kecil. Tumis semua bahan bumbu halus hingga harum. Tambahkan kecap manis dan air. Biarkan mendidih sambil diaduk, tes rasa. Masukkan bandeng. Ungkep hingga air menyusut, sisihkan."
+- "Panaskan grill/bakaran (saya pakai maxim ultragrill). Bakar bandeng yang telah diungkep dengan api kecil. Bolak-balik hingga matang merata. Siap santap ❤"
+categories:
+- Resep
+tags:
+- bandeng
+- bakar
+- bumbu
+
+katakunci: bandeng bakar bumbu 
+nutrition: 207 calories
+recipecuisine: Indonesian
+preptime: "PT31M"
+cooktime: "PT31M"
+recipeyield: "1"
+recipecategory: Dessert
+
+---
+
+
+![Bandeng Bakar Bumbu Kecap Pedas](https://img-global.cpcdn.com/recipes/a33b212aa11cd53b/751x532cq70/bandeng-bakar-bumbu-kecap-pedas-foto-resep-utama.jpg)
+
+Lagi mencari ide resep bandeng bakar bumbu kecap pedas yang unik? Cara menyiapkannya memang tidak susah dan tidak juga mudah. Kalau keliru mengolah maka hasilnya akan hambar dan bahkan tidak sedap. Padahal bandeng bakar bumbu kecap pedas yang enak seharusnya mempunyai aroma dan cita rasa yang bisa memancing selera kita.
+
+Hidangan ikan bandeng bumbu bakar kecap pedas manis akan nikmat jika disantap selagi masih hangat. Apalagi dipadu dengan bahan pelengkap lain seperti sambal dan lalapan, sudah pasti hasrat lapar akan semakin tergugah dan membuat kita ingin kembali menambah porsi makan. BUMBU IKAN BAKAR - Salah satu cara mengolah ikan yang sangat digemari masyarakat adalah dibakar.
+
+Ada beberapa hal yang sedikit banyak berpengaruh terhadap kualitas rasa dari bandeng bakar bumbu kecap pedas, pertama dari jenis bahan, kedua pemilihan bahan segar hingga cara mengolah dan menghidangkannya. Tak perlu pusing kalau ingin menyiapkan bandeng bakar bumbu kecap pedas enak di rumah, karena asal sudah tahu triknya maka hidangan ini mampu jadi sajian spesial.
+
+
+Nah, kali ini kita coba, yuk, kreasikan bandeng bakar bumbu kecap pedas sendiri di rumah. Tetap berbahan yang sederhana, sajian ini bisa memberi manfaat untuk membantu menjaga kesehatan tubuhmu sekeluarga. Anda dapat menyiapkan Bandeng Bakar Bumbu Kecap Pedas menggunakan 15 jenis bahan dan 2 langkah pembuatan. Berikut ini langkah-langkah dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang diperlukan dalam menyiapkan Bandeng Bakar Bumbu Kecap Pedas:
+
+1. Ambil 1 ekor bandeng segar (cuci, belah melebar badan bandeng)
+1. Ambil 4 sdm kecap manis
+1. Sediakan 50 ml air
+1. Sediakan  Bahan Marinasi
+1. Ambil 1/2 butir jeruk nipis (peras)
+1. Gunakan Secukupnya garam halus
+1. Ambil  Bahan Bumbu Halus
+1. Sediakan 2 siung bawang putih
+1. Ambil 1 ruas jahe
+1. Ambil 1 ruas kunyit
+1. Siapkan 1 butir kemiri
+1. Gunakan 1/2 sdt ketumbar halus
+1. Siapkan 1/2 sdt garam
+1. Sediakan 1/4 sdt gula pasir
+1. Siapkan 3 buah cabe rawit (bisa ditambah/dikurang)
+
+
+Ikan bandeng, Bumbu racik ikan bakar, Jeruk nipis, Kecap, Minyak goreng. Bagi yang suka pedas bisa ditambahkan cabenya. Dan bisa juga ditambahkan kunyit ya agar warnanya lebih cerah. Sering nongkrong di warung makan ? 
+
+<!--inarticleads2-->
+
+##### Cara membuat Bandeng Bakar Bumbu Kecap Pedas:
+
+1. Panaskan sedikit minyak dengan api kecil. Tumis semua bahan bumbu halus hingga harum. Tambahkan kecap manis dan air. Biarkan mendidih sambil diaduk, tes rasa. Masukkan bandeng. Ungkep hingga air menyusut, sisihkan.
+1. Panaskan grill/bakaran (saya pakai maxim ultragrill). Bakar bandeng yang telah diungkep dengan api kecil. Bolak-balik hingga matang merata. Siap santap ❤
+
+
+Pasti Anda pernah menjumpai menu Ikan bandeng bakar bumbu khan? Jelas dong, karena menu tersebut merupakan salah satu menu andalan masakan di Rumah makan ikan bakar. Vegetarian Sehat Organik Vegan Bebas Susu Rendah Karbohidrat Rendah Gula. Ikan bandeng, digoreng renyah dan dipadukan bumbu rujak? Wah, pastinya bakal jadi santapan seru! 
+
+Gimana nih? Mudah bukan? Itulah cara membuat bandeng bakar bumbu kecap pedas yang bisa Anda lakukan di rumah. Semoga bermanfaat dan selamat mencoba!
